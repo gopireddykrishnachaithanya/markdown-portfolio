@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+- Food
+- eating
+- Sleeping
+- Work
+- travelling
+- wlidlife photography
+- friends
