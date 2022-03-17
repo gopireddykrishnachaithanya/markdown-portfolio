@@ -1,0 +1,7 @@
+- Food
+- eating
+- Sleeping
+- Work
+- travelling
+- wlidlife photography
+- friends
